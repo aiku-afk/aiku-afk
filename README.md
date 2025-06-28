@@ -2,7 +2,7 @@
 - 👀 I’m interested in sexo
 - 🌱 I’m currently learning molestar
 - 💞️ I’m looking to collaborate on rodar
-- 📫 How to reach me : +55 84 98679-34300
+- 📫 How to reach me : +55 84 99126-7507
 - 😄 Pronouns: nsei
 - ⚡ Fun fact: eu goso em 1 minuto
 
